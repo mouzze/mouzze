@@ -1,4 +1,5 @@
 ### Hi there 👋
+![burn](https://github.com/mouzze/mouzze/assets/105037599/9b736a0f-ba06-4e09-99cf-5767e8e9cc7e)
 
 <!--
 **mouzze/mouzze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
