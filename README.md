@@ -1,5 +1,9 @@
 ### Hi there 👋
-![burn](https://github.com/mouzze/mouzze/assets/105037599/9b736a0f-ba06-4e09-99cf-5767e8e9cc7e)
+https://www.yourworldoftext.com/~mouzze/ ADD TO MY WORLD OF TEXT 
+![burn](https://github.com/mouzze/mouzze/assets/105037599/9b736a0f-ba06-4e09-99cf-5767e8e9cc7e) 
+HOW DO I MAKE THE GIF MOVE!!!!!!!!!!!!
+I will make this github look adorable when im not busy :3333333
+
 
 <!--
 **mouzze/mouzze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
